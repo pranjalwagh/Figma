@@ -7,3 +7,5 @@ Landing Page created using Figma
 
 Figma Link-
 https://www.figma.com/file/dPDoi1A1yaY5h4Pfnux1kk/DAY-01?t=zx5zhdmQC6y5szhK-1
+
+https://twitter.com/ll_wagh_ll/status/1595489782570049542
