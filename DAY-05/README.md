@@ -6,4 +6,4 @@ LOGITECH UI Design in Figma
 
 Figma Link - https://www.figma.com/file/N3rvH5QCarssk2XVlsDk81/DAY-05?node-id=0%3A1&t=oBkGcePCLeVLwOEP-1
 
-Twitter - 
+Twitter - https://twitter.com/ll_wagh_ll/status/1596943115960868864?s=20&t=wemeXqGz4rq0yO6Unb9Vjw
