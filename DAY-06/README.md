@@ -6,4 +6,4 @@ Modern Landing Page UI Design in Figma
 
 Figma Link - https://www.figma.com/file/pOcb0r4s7PnUuskvGHSFIM/DAY-06?node-id=0%3A1&t=DogBcUBeyxXnpSVp-1
 
-Twitter - 
+Twitter - https://twitter.com/ll_wagh_ll/status/1597307356505079808?s=20&t=gQEzPVSQaPWthwITJuYqpA
