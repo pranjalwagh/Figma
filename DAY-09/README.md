@@ -6,4 +6,4 @@ illustration in Figma
 
 Figma Link - https://www.figma.com/file/F5DZXbCYaOY6SY59dVL1OY/DAY-09?node-id=4%3A2&t=js97J39oCr1frtbZ-1
 
-Twitter -
+Twitter - https://twitter.com/ll_wagh_ll/status/1598625576998563840?s=20&t=tq3uK9z7jjUDUIAKupgI4g
