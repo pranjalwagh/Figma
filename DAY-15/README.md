@@ -6,4 +6,4 @@ Countdown Timer App UI in Figma
 
 ![DAY-15(1)](https://user-images.githubusercontent.com/85480387/206872660-71a3bead-423e-4fbc-95e3-33f1590b921e.png)
 
-Figma Link -
+Figma Link - https://www.figma.com/file/XrGWFF2AkmXv8byHRWQCjN/DAY-15?node-id=0%3A1&t=35syk3vm2ojVMEjJ-1
