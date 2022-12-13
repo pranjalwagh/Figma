@@ -8,4 +8,4 @@ Analytics Chart App UI in Figma
 
 Figma Link - https://www.figma.com/file/fn9UAMhYzU0fbTNVlHwhWj/DAY-17?node-id=0%3A1&t=gSGzZgwJqThlifGf-1
 
-Twitter - 
+Twitter - https://twitter.com/ll_wagh_ll/status/1602608490748706818?s=20&t=Pk76tqH8CE0tU6uFEWSBaQ
