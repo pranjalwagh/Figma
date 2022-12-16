@@ -6,4 +6,4 @@ Dropdown in Figma
 
 Figma Link - https://www.figma.com/file/4TpMeIz03eoJbLETNNQ2Pk/DAY-20?node-id=0%3A1&t=p6cPgyRM9wyoJPoe-1
 
-Twitter -
+Twitter - https://twitter.com/ll_wagh_ll/status/1603829322288365568?s=20&t=wDPx7ZZlFW_1zQnNgQiO1w
