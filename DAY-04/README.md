@@ -7,3 +7,4 @@ Modern Design Ideas in Figma
 Figma Link - https://www.figma.com/file/qcuOBnqrH8YNCkbQa7q3P5/DAY-04?node-id=0%3A1&t=WwceZkD9qVby9ZkB-1
 
 Twitter - https://twitter.com/ll_wagh_ll/status/1596576322209603584?s=20&t=SnP0XLwSjtFvNxPaGuAwog
+Design
