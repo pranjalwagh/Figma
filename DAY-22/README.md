@@ -6,4 +6,4 @@ Info Card in Figma
 
 Figma Link - https://www.figma.com/file/Rl3L3klqWzXYEjvbnrHnnb/DAY-22?node-id=0%3A1&t=bm4TzxQJMiFqIwad-1
 
-Twitter -
+Twitter - https://twitter.com/ll_wagh_ll/status/1605639096944234507?s=20&t=6wB2slRbLgOKwtht3_BO7A
