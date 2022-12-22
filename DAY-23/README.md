@@ -6,4 +6,4 @@ Landing Page in Figma
 
 Figma Link - https://www.figma.com/file/N0Kxe6eeRbcftuvnjV21Mi/DAY-23?node-id=0%3A1&t=HmzNDJY93bCwDWkV-1
 
-Twitter - 
+Twitter - https://twitter.com/ll_wagh_ll/status/1606000708221689857?s=20&t=UcIKE-6cQgK9hd5mrxH77w
