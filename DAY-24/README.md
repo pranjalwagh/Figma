@@ -6,4 +6,4 @@ Testimonials in Figma
 
 Figma Link - https://www.figma.com/file/LhET6QcqBJGuU6HmE85S4n/Untitled?node-id=0%3A1&t=qK65QoTKN3EiKPBB-1
 
-Twitter - 
+Twitter - https://twitter.com/ll_wagh_ll/status/1606365074792251405?s=20&t=N-wDYy2L0TQk-8wdfFMiTQ
