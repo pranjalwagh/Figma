@@ -6,4 +6,4 @@ Agency Landing Page in Figma
 
 Figma Link - https://www.figma.com/file/RP44ZRtDCbFjDHyPRbRdhy/DAY-26?node-id=0%3A1&t=bYjCyTxoFNDVknY2-1
 
-Twitter -
+Twitter - https://twitter.com/ll_wagh_ll/status/1608014119915098118?s=20&t=bEMr299fWI3QymiVvJeLIQ
