@@ -6,4 +6,4 @@ Jacket Landing Page in Figma
 
 Figma Link - https://www.figma.com/file/vHpAqN3ROumkvcDc7ZgPRT/DAY-28?node-id=0%3A1&t=EXTJCBy83ekC4kpb-1
 
-Twitter - 
+Twitter - https://twitter.com/ll_wagh_ll/status/1608772385632845825?s=20&t=40oZSJT6J7b9jM46gzx8hA
