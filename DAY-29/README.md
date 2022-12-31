@@ -6,4 +6,4 @@ Pepsi Landing Page in Figma
 
 Figma Link - https://www.figma.com/file/KRy22StqyxAXiokxr954lR/DAY-29?node-id=0%3A1&t=T0UDjJsrUdDXmhr1-1
 
-Twitter - 
+Twitter - https://twitter.com/ll_wagh_ll/status/1609248553024761856?s=20&t=LDumfjeMAsgdC7vG-2Z5uw
